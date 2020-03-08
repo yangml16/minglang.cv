@@ -10,7 +10,8 @@ _Bachelor of Economics_ Aug 2016 – Jul 2020
 - Honors: Tsinghua Comprehensive Scholarship (11/220), Academic Excellence Scholarship (top 5%)
 - Research: _[Strive to Build World-Class Building Materials Enterprises with Global Competitiveness](http://en.drc.gov.cn/2019-06/04/content_37477081.htm)_ (included by State Council)
 
-**[McGill University, Desautels Faculty of Management](https://www.mcgill.ca/desautels/)**
+**[McGill University, Desautels Faculty of Management](https://www.mcgill.ca/desautels/)** Montreal, Canada
+_Exchange Program in Finance_ Sep 2018 – Dec 2018
 
 ## Professional Experience
 
