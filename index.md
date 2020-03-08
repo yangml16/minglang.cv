@@ -1,21 +1,21 @@
 # Welcome to Minglang's page
 
 ## Education
-[Tsinghua University, School of Economics and Management] (https://www.sem.tsinghua.edu.cn/en/)
+[Tsinghua University, School of Economics and Management](https://www.sem.tsinghua.edu.cn/en/)
 
 [McGill University, Desautels Faculty of Management](https://www.mcgill.ca/desautels/)
 
 ## Professional Experience
 
-CDH Investments
+[CDH Investments](http://www.cdhfund.com/index.php?m=content&c=index&a=english_index)
 
-Macquarie Group
+[Macquarie Group](https://www.macquarie.com/hk/en.html)
 
-Sinovation Ventures
+[Sinovation Ventures](http://www.sinovationventures.com/)
 
-China International Capital Corporation
+[China International Capital Corporation](https://en.cicc.com/)
 
-Huarong Securities
+[Huarong Securities](http://www.hrsec.com.cn/main/index/index.shtml)
 
 ## Extracurricular Activities
 
