@@ -1,4 +1,4 @@
-## Welcome to Minglang's page
+Welcome to Minglang's page
 
 You can use the [editor on GitHub](https://github.com/yangml16/minglang.cv/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
