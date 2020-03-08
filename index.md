@@ -1,5 +1,14 @@
 # Welcome to Minglang's page
-
+## Education
+Tsinghua University
+McGill University
+## Professional Experience
+CDH Investments
+Macquarie Group
+Sinovation Ventures
+China International Capital Corporation
+Huarong Securities
+## Extracurricular Activities
 
 
 
