@@ -1,14 +1,24 @@
 # Welcome to Minglang's page
+
 ## Education
-Tsinghua University
-McGill University
+[Tsinghua University, School of Economics and Management] (https://www.sem.tsinghua.edu.cn/en/)
+
+[McGill University, Desautels Faculty of Management](https://www.mcgill.ca/desautels/)
+
 ## Professional Experience
+
 CDH Investments
+
 Macquarie Group
+
 Sinovation Ventures
+
 China International Capital Corporation
+
 Huarong Securities
+
 ## Extracurricular Activities
+
 
 
 
