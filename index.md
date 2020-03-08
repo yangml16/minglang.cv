@@ -1,9 +1,13 @@
 # Welcome to Minglang's page
 
 ## Education
-**[Tsinghua University, School of Economics and Management](https://www.sem.tsinghua.edu.cn/en/)**
+**[Tsinghua University, School of Economics and Management](https://www.sem.tsinghua.edu.cn/en/)** Beijing, China
 
-_Bachelor of Economics_    Aug 2016 – Jun 2020
+_Bachelor of Economics_ Aug 2016 – Jul 2020
+
+- Major: Economics and Finance; Minor: Computer Science
+- GPA: 3.72/4.00; admitted on basis of performance on national college admissions exam (11/552,000)
+- Honors: Tsinghua Comprehensive Scholarship (11/220), Academic Excellence Scholarship (top 5%)
 
 **[McGill University, Desautels Faculty of Management](https://www.mcgill.ca/desautels/)**
 
