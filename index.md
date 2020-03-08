@@ -8,7 +8,7 @@ _Bachelor of Economics_ Aug 2016 – Jul 2020
 - Major: Economics and Finance; Minor: Computer Science
 - GPA: 3.72/4.00; admitted on basis of performance on national college admissions exam (11/552,000)
 - Honors: Tsinghua Comprehensive Scholarship (11/220), Academic Excellence Scholarship (top 5%)
-- Research: [Strive to Build World-Class Building Materials Enterprises with Global Competitiveness](http://en.drc.gov.cn/2019-06/04/content_37477081.htm) (included by State Council)
+- Research: _[Strive to Build World-Class Building Materials Enterprises with Global Competitiveness](http://en.drc.gov.cn/2019-06/04/content_37477081.htm)_ (included by State Council)
 
 **[McGill University, Desautels Faculty of Management](https://www.mcgill.ca/desautels/)**
 
