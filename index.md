@@ -3,7 +3,7 @@
 ## Education
 **[Tsinghua University, School of Economics and Management](https://www.sem.tsinghua.edu.cn/en/)**
 
-_Bachelor of Economics_
+_Bachelor of Economics_ Aug 2016 – Jun 2020
 
 **[McGill University, Desautels Faculty of Management](https://www.mcgill.ca/desautels/)**
 
