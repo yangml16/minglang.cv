@@ -11,11 +11,18 @@ _Bachelor of Economics_ Aug 2016 – Jul 2020
 - Research: _[Strive to Build World-Class Building Materials Enterprises with Global Competitiveness](http://en.drc.gov.cn/2019-06/04/content_37477081.htm)_ (included by State Council)
 
 **[McGill University, Desautels Faculty of Management](https://www.mcgill.ca/desautels/)** Montreal, Canada
+
 _Exchange Program in Finance_ Sep 2018 – Dec 2018
 
 ## Professional Experience
 
-**[CDH Investments](http://www.cdhfund.com/index.php?m=content&c=index&a=english_index)**
+**[CDH Investments](http://www.cdhfund.com/index.php?m=content&c=index&a=english_index)** Beijing, China
+
+_Off-cycle Intern, Growth Fund_ Oct 2019 – Present
+
+- Actively involved in investment research & transaction of a China’s budget hotel chain company
+1. Responsible for building valuation model, calculating CDH’s returns and creating investment committee memorandum
+2. Assisted in due diligence process and interviewed the owners and managers of over 50 hotels in North China
 
 **[Macquarie Group](https://www.macquarie.com/hk/en.html)**
 
