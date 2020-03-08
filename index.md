@@ -3,6 +3,8 @@
 ## Education
 **[Tsinghua University, School of Economics and Management](https://www.sem.tsinghua.edu.cn/en/)**
 
+_Bachelor of Economics_
+
 **[McGill University, Desautels Faculty of Management](https://www.mcgill.ca/desautels/)**
 
 ## Professional Experience
