@@ -1,25 +1,27 @@
 # Welcome to Minglang's page
 
 ## Education
-[Tsinghua University, School of Economics and Management](https://www.sem.tsinghua.edu.cn/en/)
+**[Tsinghua University, School of Economics and Management]**(https://www.sem.tsinghua.edu.cn/en/)
 
-[McGill University, Desautels Faculty of Management](https://www.mcgill.ca/desautels/)
+**[McGill University, Desautels Faculty of Management]**(https://www.mcgill.ca/desautels/)
 
 ## Professional Experience
 
-[CDH Investments](http://www.cdhfund.com/index.php?m=content&c=index&a=english_index)
+**[CDH Investments]**(http://www.cdhfund.com/index.php?m=content&c=index&a=english_index)
 
-[Macquarie Group](https://www.macquarie.com/hk/en.html)
+**[Macquarie Group]**(https://www.macquarie.com/hk/en.html)
 
-[Sinovation Ventures](http://www.sinovationventures.com/)
+**[Sinovation Ventures]**(http://www.sinovationventures.com/)
 
-[China International Capital Corporation](https://en.cicc.com/)
+**[China International Capital Corporation]**(https://en.cicc.com/)
 
-[Huarong Securities](http://www.hrsec.com.cn/main/index/index.shtml)
+**[Huarong Securities]**(http://www.hrsec.com.cn/main/index/index.shtml)
 
 ## Extracurricular Activities
 
+**Tsinghua University Financial Association**
 
+**Tsinghua University Go (Weiqi) Team**
 
 
 
