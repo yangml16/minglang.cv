@@ -40,10 +40,17 @@ _Off-cycle Intern, Investment Division_ Jan 2019 – Apr 2019
 analysis based on China’s birth rate and e-commerce market share
 
 **[China International Capital Corporation](https://en.cicc.com/)** Beijing, China
-_Off-cycle Intern, Investment Banking Division_ Apr 2018 – Jul 2018
--
 
-**[Huarong Securities](http://www.hrsec.com.cn/main/index/index.shtml)**
+_Off-cycle Intern, Investment Banking Division_ Apr 2018 – Jul 2018
+
+- Participated in a CN¥2bn IPO for [Yangtze Optical Fibre & Cable (601869 CN)]()
+- Assisted in a pitch for China’s leading gold company acquiring US$1bn African gold mine assets
+
+**[Huarong Securities](http://www.hrsec.com.cn/main/index/index.shtml)** Shenzhen, China
+
+_Off-cycle Intern, Investment Banking Division_ Aug 2017 – Sep 2017
+
+- Participated in a CN¥1.5bn debt financing deal for a leading real estate company; assisted in the due diligence process
 
 ## Extracurricular Activities
 
