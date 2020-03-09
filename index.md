@@ -21,8 +21,7 @@ _Exchange Program in Finance_ Sep 2018 – Dec 2018
 _Off-cycle Intern, Growth Fund_ Oct 2019 – Present
 
 - Actively involved in investment research & transaction of a China’s budget hotel chain company
-1. Responsible for building valuation model, calculating CDH’s returns and creating investment committee memorandum
-2. Assisted in due diligence process and interviewed the owners and managers of over 50 hotels in North China
+-
 
 **[Macquarie Group](https://www.macquarie.com/hk/en.html)** Beijing, China
 
