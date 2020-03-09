@@ -21,7 +21,7 @@ _Exchange Program in Finance_ Sep 2018 – Dec 2018
 _Off-cycle Intern, Growth Fund_ Oct 2019 – Present
 
 - Actively involved in investment research & transaction of a China’s budget hotel chain company
--
+- 
 
 **[Macquarie Group](https://www.macquarie.com/hk/en.html)** Beijing, China
 
@@ -35,8 +35,7 @@ _Summer Analyst, Investment Banking Division_ Jun 2019 – Sep 2019
 _Off-cycle Intern, Investment Division_ Jan 2019 – Apr 2019
 
 - Participated in investment research of a sneaker resale company “Nice app”
-- Performed a case study of [Juewei Food (603517 CN)](https://www.juewei.cn/); implemented statistical analysis based on the number of stores and economic
-factors (e.g. GDP, DPI, population and land area) of each city
+- Performed a case study of [Juewei Food (603517 CN)](https://www.juewei.cn/); implemented statistical analysis based on the number of stores and economic factors (e.g. GDP, DPI, population and land area) of each city
 
 **[China International Capital Corporation](https://en.cicc.com/)**
 
