@@ -24,7 +24,12 @@ _Off-cycle Intern, Growth Fund_ Oct 2019 – Present
 1. Responsible for building valuation model, calculating CDH’s returns and creating investment committee memorandum
 2. Assisted in due diligence process and interviewed the owners and managers of over 50 hotels in North China
 
-**[Macquarie Group](https://www.macquarie.com/hk/en.html)**
+**[Macquarie Group](https://www.macquarie.com/hk/en.html)** Beijing, China
+
+_Summer Analyst, Investment Banking Division_ Jun 2019 – Sep 2019
+
+- Participated in the sale of Swedish market leading 240MW onshore wind farms
+- Participated in the sale of €250mn Latvian regulated natural gas transmission and storage company
 
 **[Sinovation Ventures](http://www.sinovationventures.com/)**
 
