@@ -20,8 +20,7 @@ _Exchange Program in Finance_ Sep 2018 – Dec 2018
 
 _Off-cycle Intern, Growth Fund_ Oct 2019 – Present
 
-- Actively involved in investment research & transaction of a China’s budget hotel chain company
-- 
+- Actively involved in an US$20mn investment transaction in a China’s budget hotel chain company
 
 **[Macquarie Group](https://www.macquarie.com/hk/en.html)** Beijing, China
 
@@ -29,15 +28,20 @@ _Summer Analyst, Investment Banking Division_ Jun 2019 – Sep 2019
 
 - Participated in the sale of Swedish market leading 240MW onshore wind farms
 - Involved in the sale of €250mn Latvian regulated natural gas transmission and storage company
+- Conducted market sounding for internet data center (IDC), distributed generation of solar power (DG solar) and waste-to-energy (WtE) projects, managed investor log and contacts
 
 **[Sinovation Ventures](http://www.sinovationventures.com/)** Beijing, China
 
 _Off-cycle Intern, Investment Division_ Jan 2019 – Apr 2019
 
-- Participated in investment research of a sneaker resale company “Nice app”
+- Participated in investment research of a sneaker resale company [Nice app](http://www.oneniceapp.com/)
 - Performed a case study of [Juewei Food (603517 CN)](https://www.juewei.cn/); implemented statistical analysis based on the number of stores and economic factors (e.g. GDP, DPI, population and land area) of each city
+- Conducted deal sourcing in maternal and infant product industry; carried out bottom-up market sizing, and performed sensitivity
+analysis based on China’s birth rate and e-commerce market share
 
-**[China International Capital Corporation](https://en.cicc.com/)**
+**[China International Capital Corporation](https://en.cicc.com/)** Beijing, China
+_Off-cycle Intern, Investment Banking Division_ Apr 2018 – Jul 2018
+-
 
 **[Huarong Securities](http://www.hrsec.com.cn/main/index/index.shtml)**
 
