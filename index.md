@@ -29,9 +29,15 @@ _Off-cycle Intern, Growth Fund_ Oct 2019 – Present
 _Summer Analyst, Investment Banking Division_ Jun 2019 – Sep 2019
 
 - Participated in the sale of Swedish market leading 240MW onshore wind farms
-- Participated in the sale of €250mn Latvian regulated natural gas transmission and storage company
+- Involved in the sale of €250mn Latvian regulated natural gas transmission and storage company
 
-**[Sinovation Ventures](http://www.sinovationventures.com/)**
+**[Sinovation Ventures](http://www.sinovationventures.com/)** Beijing, China
+
+_Off-cycle Intern, Investment Division_ Jan 2019 – Apr 2019
+
+- Participated in investment research of a sneaker resale company “Nice app”
+- Performed a case study of [Juewei Food (603517 CN)](https://www.juewei.cn/); implemented statistical analysis based on the number of stores and economic
+factors (e.g. GDP, DPI, population and land area) of each city
 
 **[China International Capital Corporation](https://en.cicc.com/)**
 
