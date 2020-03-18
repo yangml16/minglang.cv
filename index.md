@@ -27,7 +27,7 @@ _Off-cycle Intern, Growth Fund_ Oct 2019 – Present
 
 - Actively involved in an US$20mn investment transaction in a China’s budget hotel chain company
 
-**[Macquarie Group](https://www.macquarie.com/hk/en.html)** Beijing, China
+**[Macquarie Group](https://www.macquarie.com/hk/en.html)** -:Beijing, China
 
 _Summer Analyst, Investment Banking Division_ Jun 2019 – Sep 2019
 
