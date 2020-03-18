@@ -56,11 +56,24 @@ _Off-cycle Intern, Investment Banking Division_ Aug 2017 – Sep 2017
 
 **Tsinghua University Financial Association**
 
+_Director, Career Development Department_ Nov 2016 – Non 2019
+
+- Committed to maintaining a good relationship between alumni and undergraduates; assisted in annual parties
+- Organized career-oriented activities including IBD workshop and business tea side talk
+
+
 **Tsinghua University Go (Weiqi) Team**
+
+_Director, Career Development Department_ Oct 2016 – Present
+
+- Participated in the Beijing University Go League on behalf of Tsinghua University
 
 **Tsinghua SEM Basketball Team**
 
+_Player & Coach_ Sep 2016 – Present
 
+- Participated in the Tsinghua University Ma John Cup men's basketball game; helped SEM win the runner-up
+- Served as the head coach of the freshmen basketball team; led the team in winning the Tiny Ma John Cup championship
 
 
 
