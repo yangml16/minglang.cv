@@ -2,9 +2,9 @@
 
 ## Education
 
-**[Massachusetts Institute of Technology, Sloan School of Management](https://mitsloan.mit.edu/)** Boston, United States
+**[Massachusetts Institute of Technology, Sloan School of Management](https://mitsloan.mit.edu/)** | Boston, United States
 
-_Master of Finance_ Jun 2020 - Feb 2022 (Upcoming)
+_Master of Finance_ | Jun 2020 - Feb 2022 (Upcoming)
 
 **[Tsinghua University, School of Economics and Management](https://www.sem.tsinghua.edu.cn/en/)** Beijing, China
 
