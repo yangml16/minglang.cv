@@ -2,7 +2,7 @@
 
 ## Education
 
-**[Massachusetts Institute of Technology, Sloan School of Management](https://mitsloan.mit.edu/)** Boston, United States
+**[Massachusetts Institute of Technology, Sloan School of Management](https://mitsloan.mit.edu/)** -: Boston, United States
 
 _Master of Finance_ Jun 2020 - Feb 2022 (Upcoming)
 
@@ -27,7 +27,7 @@ _Off-cycle Intern, Growth Fund_ Oct 2019 – Present
 
 - Actively involved in an US$20mn investment transaction in a China’s budget hotel chain company
 
-**[Macquarie Group](https://www.macquarie.com/hk/en.html)** -:Beijing, China
+**[Macquarie Group](https://www.macquarie.com/hk/en.html)** Beijing, China
 
 _Summer Analyst, Investment Banking Division_ Jun 2019 – Sep 2019
 
